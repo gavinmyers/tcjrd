@@ -1,4 +1,4 @@
-#TCJRD needs your help to find a new practice space!
+TCJRD needs your help to find a new practice space!
 
 + Smooth concrete floor approximately 90′ x 120
 + Indoors and heated
